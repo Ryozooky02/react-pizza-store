@@ -21,3 +21,5 @@
 ## Соц.Сети:
 1. [Telegram](https://t.me/ryozooky)
 2. [Instagram](https://www.instagram.com/ryozooky/)
+### Описания
+![Текст описания](https://i05.kanobu.ru/r/99441f4bd40bf96f051af1738c36618f/1040x-/u.kanobu.ru/editor/images/47/88dfa506-66f8-4856-b1d4-7e83c535ecdc.jpg)
